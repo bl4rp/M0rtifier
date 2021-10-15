@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Daniel
 - 👀 I’m interested in cybersecurity
-- 📫 Discord : Mortifier#2652
+- 📫 Discord : Blarp#2652
